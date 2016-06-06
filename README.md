@@ -1,2 +1,4 @@
 # hello-world
-tedaklhdfjbdckjsbvjsbkfvblaevkmfn 
+
+haloo ini lagi mencoba
+selamat mencoba
